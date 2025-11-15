@@ -1,0 +1,1 @@
+kader sangat menyenangkan
